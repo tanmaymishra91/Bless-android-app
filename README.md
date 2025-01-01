@@ -1,1 +1,1 @@
-Main Bless APK file link -> https://discord.com/channels/1231482071499800638/1231482072330407971/1312009450759917618
+Main Bless APK file link -> https://cdn.discordapp.com/attachments/1231482072330407970/1277231515897434144/base.apk?ex=674a514b&is=6748ffcb&hm=02b336a24496c159c62adc73e8a508ef51332140c9fe966fb0b5e6db303ecd0c&
